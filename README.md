@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nautilus7676
+- 👋 Hi, I’m @mruniverse]
 - 👀 I’m interested in cookie breaching using a mouse
 - 🌱 I’m currently learning ai
 - 💞️ I’m looking to collaborate on ai and sentinel One 
